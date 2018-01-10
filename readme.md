@@ -12,7 +12,10 @@ Mere anarchy is loosed upon the world,
 Rejoice as the day may dawn
 
 The blood-dimmed tide is loosed, and everywhere
-Earth welcomes her nutrients
+Earth welcomes her nutrients;
 
 The ceremony of innocence is drowned;
 To be reborn upon the spring
+
+Thus iron proves the worth
+Rust springing green from the earth
