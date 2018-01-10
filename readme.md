@@ -15,7 +15,7 @@ Mere anarchy is loosed upon the world,
 Rejoice as the day may dawn
 
 The blood-dimmed tide is loosed, and everywhere  
-Earth welcomes her nutrients;
+Thirsty Earth welcomes her new nutrients;
 
 The ceremony of innocence is drowned;  
 Sinks below awaiting the years turning
