@@ -6,8 +6,13 @@ The falcon cannot hear the falconer
 Leather hood providing illusionary freedom
 
 Things fall apart; the centre cannot hold;
-The rest of the world rejoices
+Blooms peek around the edges
 
 Mere anarchy is loosed upon the world,
+Rejoice as the day may dawn
 
 The blood-dimmed tide is loosed, and everywhere
+Earth welcomes her nutrients
+
+The ceremony of innocence is drowned;
+To be reborn upon the spring
