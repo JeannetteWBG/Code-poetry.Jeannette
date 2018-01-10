@@ -9,7 +9,7 @@ Things fall apart; the centre cannot hold;
 Blooms peek around the edges
 
 Mere anarchy is loosed upon the world,
-Rejoice as the day may dawn;
+Rejoice as the day may dawn
 
 The blood-dimmed tide is loosed, and everywhere
 Earth welcomes her nutrients;
