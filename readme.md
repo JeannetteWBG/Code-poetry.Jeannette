@@ -1,6 +1,6 @@
 
 Turning and turning in the widening gyre
-Over the rustling sheaves.
+Over the rustling sheaves
 
 The falcon cannot hear the falconer
 Leather hood providing illusionary freedom
