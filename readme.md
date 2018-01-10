@@ -18,4 +18,4 @@ The ceremony of innocence is drowned;
 To be reborn upon the spring
 
 Thus iron proves the worth
-Rust springing green from the earth
+Once rust, now green, emerges from the earth
