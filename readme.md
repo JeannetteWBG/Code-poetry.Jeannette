@@ -9,7 +9,7 @@ The falcon cannot hear the falconer
 Hood provides illusionary freedom
 
 Things fall apart; the centre cannot hold;  
-Blooms and vines nibble around the edges
+Edges nibbled by both blooms and vines
 
 Mere anarchy is loosed upon the world,  
 Rejoice as the day may dawn
